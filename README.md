@@ -1,3 +1,9 @@
+DJS10 Loom Video Link: [https://www.loom.com/share/28e98d0893af46d9965642c88e51ab1f?sid=24ec2bd9-e701-4f6b-a983-b4bff3bd7943]
+
+COACH RAN OUT OF TIME to explain evrything.
+
+
+
 ## Project Brief: DJS10 - Asynchrony
 
 #### Objective
